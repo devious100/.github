@@ -1,4 +1,4 @@
-<img src="https://gifyu.com/image/S4aya" alt="Devious100.com" title="Devious100" />
+<img src="https://s10.gifyu.com/images/S4aya.gif" alt="Devious100.com" title="Devious100" />
 
 ## Feck Off! 🖕
 
